@@ -24,10 +24,8 @@ Creo en la colaboración y en el poder de la comunidad
 para crear soluciones innovadoras.
 
 ## Contacto
-Discord: vnozell
-You Tube: https://youtube.com/@vNozell
 
-¡Me encanta conectar con otras personas apasionadas por la tecnología! Puedes encontrarme en [LinkedIn](enlace a tu perfil de LinkedIn) y [Twitter](enlace a tu perfil de Twitter).
+¡Me encanta conectar con otras personas apasionadas por la tecnología! Puedes encontrarme en [Discord] vNozell y [YouTube]https://youtube.com/@vNozell.
 
 ¡Gracias por visitar mi perfil! Espero que encuentres algo interesante aquí. 😊
   
